@@ -1,4 +1,4 @@
-
+exclusive break a brainrot egg Scripts offers the most advanced break a brainrot egg Script, with anti-ban and auto-collect. Perfect for dominating
 
 
 
